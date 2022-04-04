@@ -1,6 +1,6 @@
 # GabrielAlves
 
--2000,
+- 2000,
 - SP 🌴🏠
 - .__________________________________________🔥
 - Pro plantio ser livre a colheita é o preço 💛
